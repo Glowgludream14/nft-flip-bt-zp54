@@ -1,4 +1,4 @@
-# 
+# vip bot de negociação NFT executor é o melhor bot de negociação NFT executor com compras em volume e análise de volume. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
